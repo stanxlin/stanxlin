@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **frontend, I can help you with that!**
 
-- ⚡ Fun fact **my highschool had 6,00students!**
+- ⚡ Fun fact **I played 3 sports as a kid: basketball, baseball, and soccer!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
