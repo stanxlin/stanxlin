@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **frontend, I can help you with that!**
 
-- ⚡ Fun fact **my highschool had 6,000 students!**
+- ⚡ Fun fact **my highschool had 6,00students!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
